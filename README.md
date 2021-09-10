@@ -1,0 +1,1 @@
+Cloning this site brodern my html and css knowlage more and i hope to build more project till i'm perfect. Spercial thanks to www.freecodecamp.org
